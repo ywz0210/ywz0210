@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ywz0210
-- 👀 I’m interested in Violin / Fan-fiction / F1 Racing!
+- 👀 I’m interested in F1 Racing!
 - 🌱 I’m currently learning nothing lol
 - 💞️ I’m looking to collaborate on mistery.
 - 📫 Reach me ?
